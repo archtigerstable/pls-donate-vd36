@@ -1,4 +1,4 @@
-
+hidden Script for pls donate is the best pls donate Script, featuring no cooldown and speed. Safe and powerful for all your needs.
 
 
 
